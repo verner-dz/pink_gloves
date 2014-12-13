@@ -1,3 +1,3 @@
 pink_gloves
 ===========
-Pink gloves 
+Pink gloves boxing studio
